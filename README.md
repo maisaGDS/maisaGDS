@@ -8,3 +8,6 @@ Meu nome é Maisa Gomes
 ### Você pode entrar em contato comigo 📫
 
 00001133260913sp@al.educacao.sp.gov.br
+
+
+![](https://tenor.com/pt-BR/view/kawaii-gif-26141645)
